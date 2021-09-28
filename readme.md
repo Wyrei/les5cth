@@ -10,3 +10,4 @@
 
 ##### stap 2 Haal het deeg daarna uit de folie. Bebloem een ondergrond en rol het deeg uit met een deegroller. Steek er met een vormpje vormen uit en leg deze op een bakplaat met bakpapier. De koekjes lopen niet heel erg uit maar het is wel goed om een beetje ruimte ertussen te houden. Schuif de bakplaat met de zandkoekjes de oven in en bak de koekjes in 15 minuten goudbruin. Haal de bakplaat uit de oven en laat de koekjes erop afkoelen.
 
+###### link https://www.leukerecepten.nl/recepten/zandkoekjes/
